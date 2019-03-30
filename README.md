@@ -1,1 +1,1 @@
-
+cos mam napisane
